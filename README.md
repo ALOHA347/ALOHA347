@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ALOHA347
-- 👀 I’m interested in Alyona
+- 👀 I’m interested in Fox
 - 🌱 I’m currently learning in 5th grade
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me via zatolokinaolena24@gmail.com
